@@ -1,2 +1,2 @@
-McKay Waters
+McKay
 
